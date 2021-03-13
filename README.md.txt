@@ -1,1 +1,0 @@
-Travel Mate will make you feeling that you are not alone whereever you are traveling.
